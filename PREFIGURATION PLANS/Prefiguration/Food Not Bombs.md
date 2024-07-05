@@ -1,6 +1,6 @@
 #Prefiguration #FNB
 
-# VVV FNB OFFICIAL WEBSITE VVV
+# VVV FNB OFFICIAL WEBSITE VVV 
 [FNB Official website: (https://foodnotbombs.net/new_site/)](https://foodnotbombs.net/new_site/)
 
 # VVV FNB MISSION STATEMENT VVV
@@ -22,4 +22,4 @@
 [FNB Handbook index: (https://www.foodnotbombs.net/bookindex.html)](https://www.foodnotbombs.net/bookindex.html)
 
 # VVV FNB BLOG VVV
-[FNB Blog: (https://blog.foodnotbombs.net/)](https://blog.foodnotbombs.net/
+[FNB Blog: (https://blog.foodnotbombs.net/)](https://blog.foodnotbombs.net/)
