@@ -1,1 +1,0 @@
-#Prefiguration #Energy-Generation
