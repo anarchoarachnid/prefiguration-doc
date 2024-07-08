@@ -1,3 +1,5 @@
+BRAINSTORM/THINGS NEEDED.
+
 WD40 (Substitute):
 Tire pumps:
 Wrenches:\

@@ -1,0 +1,5 @@
+First Aid kits and individual supplies to make First Aid kits are important to the health and safety of all!
+
+[How to make a first aid kit (https://www.redcross.org/get-help/how-to-prepare-for-emergencies/anatomy-of-a-first-aid-kit.html)](https://www.redcross.org/get-help/how-to-prepare-for-emergencies/anatomy-of-a-first-aid-kit.html)
+
+[Contents of a commercial first aid kit (https://mymedic.com/products/myfak-waterproof-first-aid-kit?nbt=nb%3Aadwords%3Ax%3A16260842545%3A%3A&nb_adtype=pla&nb_kwd=&nb_ti=&nb_mi=121640367&nb_pc=online&nb_pi=shopify_US_6567594262624_39348817002592&nb_ppi=&nb_placement=&nb_li_ms=&nb_lp_ms=&nb_fii=&nb_ap=&nb_mt=&gad_source=1&gclid=Cj0KCQjw1qO0BhDwARIsANfnkv-HHCutWyetg4xXfiX5NL6PmStL06mJrz7qTtoSuy9cdvr_MSfmUL0aAqOGEALw_wcB)](https://mymedic.com/products/myfak-waterproof-first-aid-kit?nbt=nb%3Aadwords%3Ax%3A16260842545%3A%3A&nb_adtype=pla&nb_kwd=&nb_ti=&nb_mi=121640367&nb_pc=online&nb_pi=shopify_US_6567594262624_39348817002592&nb_ppi=&nb_placement=&nb_li_ms=&nb_lp_ms=&nb_fii=&nb_ap=&nb_mt=&gad_source=1&gclid=Cj0KCQjw1qO0BhDwARIsANfnkv-HHCutWyetg4xXfiX5NL6PmStL06mJrz7qTtoSuy9cdvr_MSfmUL0aAqOGEALw_wcB)

@@ -1,0 +1,1 @@
+This library is built to educate people and let people learn through the lens of critical thinking and non-hierarchical learning. 

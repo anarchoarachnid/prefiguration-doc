@@ -1,0 +1,1 @@
+Those who were forcefully evicted from their homes or choose to not interact with landlords and rent need the houseless shelter, and the necessity of this is dire. We need to support our houseless neighbors. 

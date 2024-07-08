@@ -1,4 +1,4 @@
-Membership: Decided by Bike Distribution-AG, Free
+BRAINSTORM/THINGS NEEDED.
 
 Wheels:
 Handle:
