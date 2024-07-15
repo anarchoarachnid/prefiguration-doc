@@ -9,3 +9,4 @@ Queer wins:
 BIPOC wins:
 Disabled wins:
 Student/Teacher wins:
+Decolonization wins:

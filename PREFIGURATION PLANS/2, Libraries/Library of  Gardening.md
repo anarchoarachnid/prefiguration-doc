@@ -1,1 +1,0 @@
-This library is specifically for the spaces for hosting gardens and for the collection of crops and plants in general. 
