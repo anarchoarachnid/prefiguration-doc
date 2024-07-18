@@ -1,1 +1,0 @@
-This clothing free store is essentially 
