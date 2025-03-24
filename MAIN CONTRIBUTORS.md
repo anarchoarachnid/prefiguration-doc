@@ -1,2 +1,2 @@
-Anarchoarachnid: She/her
-Lunarnovaa: She/her
+Anarchoarachnid: They/Them
+Lunarnovaa: She/they
