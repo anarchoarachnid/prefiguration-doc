@@ -1,0 +1,4 @@
+
+--- 
+##### OBSIDIAN TAGS BELOW:
+- #HEXA-BASIS 
